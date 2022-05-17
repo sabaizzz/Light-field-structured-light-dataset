@@ -1,4 +1,3 @@
-https://pan.baidu.com/s/1Igb_wZoiXB4GT_amFJoyFQ 
+The paper has been submitted for publication.
 
-code：data 
-
+论文已投稿，见刊公开。 
