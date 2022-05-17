@@ -1,3 +1,3 @@
-The paper has been submitted for publication.
+论文已投稿，发表后公开数据。 
 
-论文已投稿，见刊公开。 
+The paper has been submitted, and the data will be made public after publication.
